@@ -1,2 +1,2 @@
 #  Wednesday Blue
->> sad
+>> lost
